@@ -1,4 +1,4 @@
-
+## Kratom Tea Guide: Brewing Methods, Effects & Dosage Tips
 **Last updated:** February 27, 2026
 
 
